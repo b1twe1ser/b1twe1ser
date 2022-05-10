@@ -9,13 +9,15 @@ It's nice to meet you ! 🌟
 
 ### Fun facts about me 🙆🏼‍♂️
 I **love** dogs 🐶
-Once upon a time I got a **_fullbody_** bruise, because I rode my new bike 🚴🏼‍♂️ way to hard against a trash container 🗑 I didn't stop in time  because my mom told me: 
+Once upon a time I got a **_fullbody_** bruise, because I rode my new bike way to hard against a trash container 🗑 I didn't stop in time  because my mom told me: 
 > When you face difficulty in life, just close your eyes and go through it !
 
 _I love you mom ❤️_ It's not your fault, your son is a little off his game 🙈
 
 ### Who am I ? 🤷🏼‍♂️
+- full time computer science student 📚
 
+more comming soon 💭
 
 
 <!--
