@@ -17,6 +17,11 @@ _I love you mom ❤️_ It's not your fault, your son is a little off his game �
 ### Who am I ? 🤷🏼‍♂️
 - full time computer science student 📚
 
+
+
+![B1we1ser's GitHub stats](https://github-readme-stats.vercel.app/api?username=b1twe1ser&show_icons=true&theme=dark)
+
+
 more comming soon 💭
 
 
