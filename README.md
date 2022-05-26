@@ -19,7 +19,7 @@ _I love you mom ❤️_ It's not your fault, your son is a little off his game �
 
 ### Who am I ? 🤷🏼‍♂️
 - full time computer science student 📚
-- fullstack mobile developer 📱
+- aspiring mobile developer 📱
 - flyfishing enthusiast 🎣
 
 ### Want to know more ? 
